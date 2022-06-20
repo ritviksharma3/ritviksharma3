@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ritviksharma3
+- 👀 Technology never fails to amaze
